@@ -1,0 +1,1 @@
+My name is Lewis Czamanske and I am a computer engineering major at Mississippi State University. Aside from computer engineering, I have a major passion for music. I also love TV shows/movies along with video games. 
